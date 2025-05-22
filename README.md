@@ -3,9 +3,7 @@
 - 🌱 I’m currently learning seductive methods
 - 💞️ I’m looking to collaborate on a relationship
 - 📫 How to reach me: DM me
-- 😄 Pronouns: se/xo
-- ⚡ Fun fact: I like head
-
+   THEY MADE ME DELETE THE REST
 <!---
 rubioz06/rubioz06 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
